@@ -19,6 +19,7 @@ Sur le plan éditorial : publications de vidéos, communiqués, photos, informat
 Et sur le community management : modération, programmation des publications...
 
 https://www.tiktok.com/@nogentsuroiseinsoumise
+https://www.instagram.com/nogentsuroiseinsoumise/
 
 J'ai également animé des réunions publiques.
 Enfin, j'ai assuré le lien et la communication avec les médias traditionnels.
