@@ -18,7 +18,7 @@ J'ai également géré l'ensemble des réseaux sociaux de la liste.
 Sur le plan éditorial : publications de vidéos, communiqués, photos, informations relatives aux réunions publiques...
 Et sur le community management : modération, programmation des publications...
 
-https://www.youtube.com/shorts/CgANDQZ6Daw
+https://www.tiktok.com/@nogentsuroiseinsoumise
 
 J'ai également animé des réunions publiques.
 Enfin, j'ai assuré le lien et la communication avec les médias traditionnels.
